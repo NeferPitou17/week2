@@ -1,3 +1,3 @@
-Team Lead: Developer C and Developer D
+Team Lead: Ernest Chungu and Bornface Kangombe
 
-Team Lead: Developer C
+Team Lead: Ernest Chungu
