@@ -1,4 +1,1 @@
-Team Lead: Developer C
-
-
-
+Team Lead: Developer C and Developer D
