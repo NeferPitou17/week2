@@ -1,1 +1,1 @@
-Team lead: TBD
+Team lead: Lushomo Munsaka
