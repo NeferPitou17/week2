@@ -1,1 +1,1 @@
-Team lead: Chipego Mukimba
+Team lead: Mukimba Chipego & Lushomo Munsaka
